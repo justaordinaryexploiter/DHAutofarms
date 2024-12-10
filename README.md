@@ -1,2 +1,2 @@
 # DHAutofarms
-probably da hood autufarms lol
+probably da hood autofarms lol
